@@ -1,4 +1,4 @@
-### Hi there 👋
+### I don't have a resume yet, but as I acquire more skills, it will definitely appear.
 
 <!--
 **babkavoz/babkavoz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
